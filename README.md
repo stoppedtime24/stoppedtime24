@@ -1,3 +1,4 @@
+Currently a 2nd Year Artificial Intelligence and Computer Science Student @ The University of Edinburgh 🏴󠁧󠁢󠁳󠁣󠁴󠁿 </br>
 
 ## 🌐 Socials:
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/https://www.linkedin.com/in/john-nocum/) 
